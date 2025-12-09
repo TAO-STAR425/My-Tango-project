@@ -122,13 +122,7 @@ Voleos
 
 Barridas (sweeps)
 
-If you want, I can show you:
 
-How to start learning tango
-
-The difference between milonga, tango, and vals
-
-A beginner’s step-by-step guide
 
 How to lead or follow
 
