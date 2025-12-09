@@ -75,6 +75,7 @@ Popularized by dancers like Gustavo Naveira and Chicho Frúmboli
 4. Milonguero Style
 
 A close-embrace social form.
+
 Key traits:
 
 Compact steps
