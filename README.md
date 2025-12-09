@@ -122,8 +122,6 @@ Voleos
 
 Barridas (sweeps)
 
-
-
 How to lead or follow
 
 Famous tango music playlists
